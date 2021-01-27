@@ -1,0 +1,1 @@
+Consultas A-B-C-D-E examen de certificacion 
